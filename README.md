@@ -36,7 +36,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-THE NINE ENGLISH WORTHIES: Or, Famous and Worthy Princes of England, being all of one name; Beginni
 1. TO THE HIGH AND MIGHTY PRINCE HENRY, Eldeſt Sonne to our Souereigne, the Kings moſt Excellent Maieſtie.
 
 1. TO THE RIGHT HOnorable, my very good Lords, the Earles of Oxenford, and Eſſex, with my Lord Vicount Cranborne, and the other yong Lords, Knights and Gentlemen attending the Princes Highneſſe; health, honour, and happineſſe.
@@ -69,133 +68,19 @@ THE NINE ENGLISH WORTHIES: Or, Famous and Worthy Princes of England, being all o
 
       * His Epitaphe.
 
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
     _ King Henry, the Second of that name.
 
-      * His Epitaphe.
-
       * His Deſcription.
 
       * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
 
     _ King Henry the third.
 
       * His Epitaphe.
 
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
     _ King Henry the fourth.
 
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
       * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
 
       * His Deſcription.
 
@@ -203,67 +88,11 @@ THE NINE ENGLISH WORTHIES: Or, Famous and Worthy Princes of England, being all o
 
     _ King Henry the fift.
 
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
       * His Deſcription.
 
       * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
 
     _ King Henry the ſixt.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
 
       * His Deſcription.
 
@@ -271,33 +100,7 @@ THE NINE ENGLISH WORTHIES: Or, Famous and Worthy Princes of England, being all o
 
     _ King Henry the ſeauenth.
 
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
       * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
 
       * His Deſcription.
 
@@ -305,105 +108,13 @@ THE NINE ENGLISH WORTHIES: Or, Famous and Worthy Princes of England, being all o
 
     _ King Henry the eight.
 
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
       * His Deſcription.
 
       * His Epitaphe.
 
     _ Henrie the ninth, Prince of Great Britaine.
 
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
     _ The Prince his Bien-venue, or welcome to all the famous Worthies of the World.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * I find two Latine Epitaphes tranſlated into rude Engliſh by the Writer of this whole Historie, the effect wherof ſomewhat reformed is, as followeth.
-
-      * His Epitaphe.
-
-      * The manner of his death.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * There is as I doe thinke an Epitaph fixed vpon his Tumbe, at Weſtminſter: but I held it my dutie to continue my courſe in writing a ſimple one of my owne, in honour of him, &c. His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Iſſue.
-
-      * His Deſcription.
-
-      * His Epitaphe.
-
-      * His Deſcription.
-
-      * His Epitaphe.
 
 **Types of content**
 
@@ -443,55 +154,49 @@ There are 12 **ommitted** fragments!
 |6.|__edition__|1||
 |7.|__editionStmt__|1||
 |8.|__editorialDecl__|1||
-|9.|__encodingDesc__|1||
-|10.|__extent__|2||
-|11.|__fileDesc__|1||
-|12.|__idno__|6| @__type__ (6) : DLPS (1), STC (2), EEBO-CITATION (1), PROQUEST (1), VID (1)|
-|13.|__keywords__|1| @__scheme__ (1) : http://authorities.loc.gov/ (1)|
-|14.|__label__|5||
-|15.|__langUsage__|1||
-|16.|__language__|1| @__ident__ (1) : eng (1)|
-|17.|__listPrefixDef__|1||
-|18.|__note__|6||
-|19.|__notesStmt__|2||
-|20.|__p__|11||
-|21.|__prefixDef__|2| @__ident__ (2) : tcp (1), char (1)  •  @__matchPattern__ (2) : ([0-9\-]+):([0-9IVX]+) (1), (.+) (1)  •  @__replacementPattern__ (2) : http://eebo.chadwyck.com/downloadtiff?vid=$1&page=$2 (1), https://raw.githubusercontent.com/textcreationpartnership/Texts/master/tcpchars.xml#$1 (1)|
-|22.|__profileDesc__|1||
-|23.|__projectDesc__|1||
-|24.|__pubPlace__|2||
-|25.|__publicationStmt__|2||
-|26.|__publisher__|2||
-|27.|__ref__|2| @__target__ (2) : https://creativecommons.org/publicdomain/zero/1.0/ (1), http://www.textcreationpartnership.org/docs/. (1)|
-|28.|__revisionDesc__|1||
-|29.|__seriesStmt__|1||
-|30.|__sourceDesc__|1||
-|31.|__term__|1||
-|32.|__textClass__|1||
-|33.|__title__|3||
-|34.|__titleStmt__|2||
+|9.|__extent__|2||
+|10.|__idno__|6| @__type__ (6) : DLPS (1), STC (2), EEBO-CITATION (1), PROQUEST (1), VID (1)|
+|11.|__keywords__|1| @__scheme__ (1) : http://authorities.loc.gov/ (1)|
+|12.|__label__|5||
+|13.|__langUsage__|1||
+|14.|__language__|1| @__ident__ (1) : eng (1)|
+|15.|__listPrefixDef__|1||
+|16.|__note__|6||
+|17.|__notesStmt__|2||
+|18.|__p__|11||
+|19.|__prefixDef__|2| @__ident__ (2) : tcp (1), char (1)  •  @__matchPattern__ (2) : ([0-9\-]+):([0-9IVX]+) (1), (.+) (1)  •  @__replacementPattern__ (2) : http://eebo.chadwyck.com/downloadtiff?vid=$1&page=$2 (1), https://raw.githubusercontent.com/textcreationpartnership/Texts/master/tcpchars.xml#$1 (1)|
+|20.|__projectDesc__|1||
+|21.|__pubPlace__|2||
+|22.|__publicationStmt__|2||
+|23.|__publisher__|2||
+|24.|__ref__|2| @__target__ (2) : https://creativecommons.org/publicdomain/zero/1.0/ (1), http://www.textcreationpartnership.org/docs/. (1)|
+|25.|__seriesStmt__|1||
+|26.|__sourceDesc__|1||
+|27.|__term__|1||
+|28.|__textClass__|1||
+|29.|__title__|3||
+|30.|__titleStmt__|2||
 
 
 ###Text Tag Usage###
 
 |No|element name|occ|attributes|
 |---|---|---|---|
-|1.|__body__|1||
-|2.|__closer__|3||
-|3.|__desc__|12||
-|4.|__div__|40| @__type__ (40) : title_page (1), dedication (11), authors_note (1), text (1), Henry (9), epitaph (7), description (6), epitaphs (1), section (1), issue (1), welcome (1)  •  @__n__ (9) : 1 (1), 2 (1), 3 (1), 4 (1), 5 (1), 6 (1), 7 (1), 8 (1), 9 (1)|
-|5.|__epigraph__|1||
-|6.|__figure__|10||
-|7.|__front__|1||
-|8.|__g__|277| @__ref__ (277) : char:EOLhyphen (260), char:cmbAbbrStroke (12), char:V (3), char:punc (2)|
-|9.|__gap__|12| @__reason__ (12) : duplicate (2), illegible (1), illegible: missing (9)  •  @__extent__ (12) : 1 page (2), 1 letter (1), 1 span (9)|
-|10.|__head__|40||
-|11.|__hi__|618| @__rend__ (4) : sup (4)|
-|12.|__l__|561||
-|13.|__lg__|32||
-|14.|__note__|16| @__place__ (16) : margin (16)|
-|15.|__p__|65||
-|16.|__pb__|76| @__facs__ (76) : tcp:18602:1 (2), tcp:18602:2 (2), tcp:18602:3 (2), tcp:18602:4 (2), tcp:18602:5 (2), tcp:18602:6 (2), tcp:18602:7 (2), tcp:18602:8 (2), tcp:18602:9 (2), tcp:18602:10 (2), tcp:18602:11 (2), tcp:18602:12 (2), tcp:18602:13 (2), tcp:18602:14 (2), tcp:18602:15 (2), tcp:18602:16 (2), tcp:18602:17 (2), tcp:18602:18 (2), tcp:18602:19 (2), tcp:18602:20 (2), tcp:18602:21 (2), tcp:18602:22 (2), tcp:18602:23 (2), tcp:18602:24 (2), tcp:18602:25 (2), tcp:18602:26 (2), tcp:18602:27 (2), tcp:18602:28 (2), tcp:18602:29 (2), tcp:18602:30 (2), tcp:18602:31 (2), tcp:18602:32 (2), tcp:18602:33 (2), tcp:18602:34 (2), tcp:18602:35 (2), tcp:18602:36 (2), tcp:18602:37 (2), tcp:18602:38 (2)  •  @__rendition__ (4) : simple:additions (4)  •  @__n__ (54) : 1 (1), 2 (1), 3 (1), 4 (1), 5 (1), 6 (1), 7 (1), 8 (1), 9 (1), 10 (1), 11 (1), 12 (1), 13 (1), 14 (2), 15 (2), 16 (1), 17 (1), 18 (1), 19 (1), 20 (1), 21 (1), 22 (1), 23 (1), 24 (1), 25 (1), 26 (1), 27 (1), 28 (1), 29 (1), 30 (1), 31 (1), 32 (1), 33 (1), 34 (1), 35 (1), 36 (1), 37 (1), 38 (1), 39 (1), 40 (1), 41 (1), 42 (1), 43 (1), 44 (1), 45 (1), 46 (1), 47 (1), 48 (1), 49 (1), 50 (1), 51 (1), 52 (1)|
-|17.|__q__|1||
-|18.|__seg__|10| @__rend__ (10) : decorInit (10)|
-|19.|__signed__|3||
-|20.|__trailer__|2||
+|1.|__closer__|3||
+|2.|__desc__|12||
+|3.|__div__|40| @__type__ (40) : title_page (1), dedication (11), authors_note (1), text (1), Henry (9), epitaph (7), description (6), epitaphs (1), section (1), issue (1), welcome (1)  •  @__n__ (9) : 1 (1), 2 (1), 3 (1), 4 (1), 5 (1), 6 (1), 7 (1), 8 (1), 9 (1)|
+|4.|__epigraph__|1||
+|5.|__figure__|10||
+|6.|__g__|277| @__ref__ (277) : char:EOLhyphen (260), char:cmbAbbrStroke (12), char:V (3), char:punc (2)|
+|7.|__gap__|12| @__reason__ (12) : duplicate (2), illegible (1), illegible: missing (9)  •  @__extent__ (12) : 1 page (2), 1 letter (1), 1 span (9)|
+|8.|__head__|40||
+|9.|__hi__|618| @__rend__ (4) : sup (4)|
+|10.|__l__|561||
+|11.|__lg__|32||
+|12.|__note__|16| @__place__ (16) : margin (16)|
+|13.|__p__|65||
+|14.|__pb__|76| @__facs__ (76) : tcp:18602:1 (2), tcp:18602:2 (2), tcp:18602:3 (2), tcp:18602:4 (2), tcp:18602:5 (2), tcp:18602:6 (2), tcp:18602:7 (2), tcp:18602:8 (2), tcp:18602:9 (2), tcp:18602:10 (2), tcp:18602:11 (2), tcp:18602:12 (2), tcp:18602:13 (2), tcp:18602:14 (2), tcp:18602:15 (2), tcp:18602:16 (2), tcp:18602:17 (2), tcp:18602:18 (2), tcp:18602:19 (2), tcp:18602:20 (2), tcp:18602:21 (2), tcp:18602:22 (2), tcp:18602:23 (2), tcp:18602:24 (2), tcp:18602:25 (2), tcp:18602:26 (2), tcp:18602:27 (2), tcp:18602:28 (2), tcp:18602:29 (2), tcp:18602:30 (2), tcp:18602:31 (2), tcp:18602:32 (2), tcp:18602:33 (2), tcp:18602:34 (2), tcp:18602:35 (2), tcp:18602:36 (2), tcp:18602:37 (2), tcp:18602:38 (2)  •  @__rendition__ (4) : simple:additions (4)  •  @__n__ (54) : 1 (1), 2 (1), 3 (1), 4 (1), 5 (1), 6 (1), 7 (1), 8 (1), 9 (1), 10 (1), 11 (1), 12 (1), 13 (1), 14 (2), 15 (2), 16 (1), 17 (1), 18 (1), 19 (1), 20 (1), 21 (1), 22 (1), 23 (1), 24 (1), 25 (1), 26 (1), 27 (1), 28 (1), 29 (1), 30 (1), 31 (1), 32 (1), 33 (1), 34 (1), 35 (1), 36 (1), 37 (1), 38 (1), 39 (1), 40 (1), 41 (1), 42 (1), 43 (1), 44 (1), 45 (1), 46 (1), 47 (1), 48 (1), 49 (1), 50 (1), 51 (1), 52 (1)|
+|15.|__q__|1||
+|16.|__seg__|10| @__rend__ (10) : decorInit (10)|
+|17.|__signed__|3||
+|18.|__trailer__|2||
